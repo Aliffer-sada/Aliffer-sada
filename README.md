@@ -11,3 +11,6 @@ Meu nome é Aliffer
 -  0001108190418sp@al.educacao.sp.gov.br
 
 -  @aliffer_017
+
+-  ![](https://tenor.com/bRlKnkTHpl3.gif)
+https://tenor.com/bRlKnkTHpl3.gif
